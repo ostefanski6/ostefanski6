@@ -1,0 +1,2 @@
+- 👋 Witaj w repozytorium należącym do: ✨ostefanski6✨
+- 👀 Czy wiesz czego szukasz? 👀
